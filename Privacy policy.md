@@ -2,9 +2,9 @@ Privacy Policy
 
 Introduction
 
-Our privacy policy will help you understand what information we collect at English Solution Class 12, how English Solution Class 12 uses it, and what choices you have.
+Our privacy policy will help you understand what information we collect at QR Scanner And Generator, how QR Scanner And Generator uses it, and what choices you have.
 
-Pankaj Subedi built the English Solution Class 12 app as a free app. This SERVICE is provided by Pankaj Subedi at no cost and is intended for use as is.
+Pankaj Subedi built the QR Scanner And Generator app as a free app. This SERVICE is provided by Pankaj Subedi at no cost and is intended for use as is.
 
 If you choose to use our Service, then you agree to the collection and use of information in  relation with this policy. The Personal Information that we collect are used for providing and improving the Service. We will not use or share your information with anyone except as described in this Privacy Policy.  
 
